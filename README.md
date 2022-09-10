@@ -203,3 +203,26 @@ Q: How the HELL did a dragon ball character enter the OPM verse?
 A quantum physics bug which plucks out a random dragon ball character every once and a while and sends them to this world making them think its their original world. The illusion to think that its their original world doesnt work on Gods of Destruction and above
 
 End of chapter 2. Arc 1 "The Martial Arts Tournament Saga"
+
+Power scaling (not canon to both original series in ANY WAY)
+
+Dodon ray 100 fold: 45% of the strength boros used with "Collapsing star roaring cannon"
+
+Neo tri beam: 4.5x the strength of CSRC
+
+Tiens barrage of punches: 2.8x the strength of CSRC
+(With Ki reinforcement): 6x the strength of CSRC
+
+Each individual attack of clones:
+
+Ultra dodon ray: Twenty web: 20x the strength of CSRC
+Four handed super kamehameha: 30x the strength of CSRC
+Quadruple spirit tri beam: 35x the strength of CSRC
+
+Tri dodon kamehameha (all the three moves above together): 170x the strength of csrc
+Tri dodon kamehameha (with air pressure buff): 200x the strength of csrc
+Tri dodon kamehameha (enraged): 600x the strength of csrc
+
+Last but not least
+
+THE SERIOUS GOLD COIN SHOT: 50,000x the strength of csrc
