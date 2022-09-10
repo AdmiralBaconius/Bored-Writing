@@ -1,4 +1,5 @@
 Chapter 1.
+
 Saitama was sitting in his house at Z-City, feeling bored as always.
 
 "Hey genos, where can I find a challenge? I've been feeling so bored lately"
